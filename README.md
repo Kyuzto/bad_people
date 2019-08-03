@@ -19,14 +19,14 @@ ___
 
 ##### » BabyAvaah/Avaah/depressedava
 
-##### Ava is someone who isn't a "skidder" rather someone who has in DevCole's Words "a hungry little motherfucker jumping from boy to boy every 2 weeks" "Avaah" is been exposed as being a male pretending to be a female (There is nothing wrong with being transgender) however in ava's case "He" was using his "Persona" of being a female to lore boys in to use them for power in the case of Warfine I personally warned FigT at the time "She" was using him for Owner and Power but at the time FigT was blinded by love and I understand the feeling no hate to him. he quickly pushed ava to the curb once he found out ava was a dude.
+##### Ava is someone who isn't a "skidder" rather someone who has in DevCole's words "a hungry little motherfucker jumping from boy to boy every 2 weeks" "Avaah" is been exposed as being a male pretending to be a female (There is nothing wrong with being transgender) however in ava's case "He" was using his "Persona" of being a female to lore boys in to use them for power in the case of Warfine I personally warned FigT at the time "She" was using him for Owner and Power but at the time FigT was blinded by love and I understand the feeling no hate to him. he quickly pushed ava to the curb once he found out ava was a dude.
 
 ##### Avaah at the time of creating his list is still a Moderator on PvP Land, I ask that you all go and report this information to the managers as someone who is like this doesn't deserve any rank on any server in this community and should just quit minecraft and do something with their lives.
 
 ##### Cole's Twitlonger on this situation https://www.twitlonger.com/show/n_1sqvfjm 
 ___
 
-##### » ZeflyYT/Zefly/EliteSmooth/Misthought/
+##### » ZeflyYT/Zefly/EliteSmooth/Misthought
 
 ##### Zefly is someone who claims to be the best developer but can only use leaked code that can be found either on blackspigot or provided to him by a third party, Zefly has "Created" a few "Custom"(iHCF leaked code) cores and has scammed people out of money and time. he created TazeHQ a server that ended up becoming an IP Farm and caused for a lot of user's IPs being leaked. he has leaked broken cores onto his channel to get a following from 13 year olds that can't simply buy a core from mc-market that actually works. 
 
