@@ -19,7 +19,7 @@ ___
 
 ##### » BabyAvaah/Avaah/depressedava
 
-##### Ava is someone who isn't a "skidder" rather someone who has in DevCole's words "a hungry little motherfucker jumping from boy to boy every 2 weeks" "Avaah" is been exposed as being a male pretending to be a female (There is nothing wrong with being transgender) however in ava's case "He" was using his "Persona" of being a female to lore boys in to use them for power in the case of Warfine I personally warned FigT at the time "She" was using him for Owner and Power but at the time FigT was blinded by love and I understand the feeling no hate to him. he quickly pushed ava to the curb once he found out ava was a dude.
+##### Ava is someone who isn't a "skidder" rather someone who has in DevCole's words "a hungry little motherfucker jumping from boy to boy every 2 weeks" "Avaah" is been exposed as being a male pretending to be a female (There is nothing wrong with being transgender) however in ava's case "He" was using his "Persona" of being a female to lure boys in to use them for power in the case of Warfine I personally warned FigT at the time "She" was using him for Owner and Power but at the time FigT was blinded by love and I understand the feeling no hate to him. he quickly pushed ava to the curb once he found out ava was a dude.
 
 ##### Avaah at the time of creating his list is still a Moderator on PvP Land, I ask that you all go and report this information to the managers as someone who is like this doesn't deserve any rank on any server in this community and should just quit minecraft and do something with their lives.
 
